@@ -1,4 +1,9 @@
-<h3 align="center"><img src="https://decohoard.carrd.co/assets/images/gallery29/2ec2d526.png?v=e0827b7e"/></h3>
-<h5 align="center"> hi i'm lucy ★ she/any (check <txt="prns card" <a href="prns page">https://en.pronouns.page/@lucyii</a>) ° 15-17 ๑✧'</h5>
-<h5 align="center">
-<h5 align="center"> Shout-out to my amazing partner/gf/wife, ily ^^
+<h5 align="center"><img src="https://maguro.carrd.co/assets/images/gallery06/1c69da93.gif?v=10a293e5"/> </h5>
+<h3 align="center"><img src="https://media1.tenor.com/m/S9lOJc-skHMAAAAd/the-boys-the-boys-diabolical.gif"/></h3>
+<h6 align="center"><img src="https://pixelsafari.neocities.org/dividers/blood.gif"/> </h6>
+<h5 align="center"><img src="https://pix.crd.co/assets/images/gallery01/b7cb53d4.gif?v=95dd3781"/><img src="https://komarev.com/ghpvc/?username=r0ttendeer&style=flat-square&color=red" alt=""/><img src="https://pix.crd.co/assets/images/gallery01/41a6e66f.gif?v=95dd3781"/> </h5>
+<h6 align="center"> Hii welcme to my github i guess !! </h6>
+<h6 align="center"> pls consider checking out my links!! n drawing / sending smth silly on my strawp :3 </h6>
+<h5 align="center"> <img src="https://pixelsafari.neocities.org/dividers/whiteredheart.png"/> </h5>
+<h6 align="center"> also int if you like my skins on pt or fandoms like ; the boys, faith, tf2 / tfc, guts and blackpowder, thats not my neighbor, tsp, mentopolis, analog horror, house md, hannibal, 8cide hotel </h6>
+<h6 align="center"><img src="https://pixelsafari.neocities.org/dividers/blood.gif"/> </h6>
